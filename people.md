@@ -13,7 +13,7 @@
 - Ivy Chen
 - Sizhen Chen
 - Yuntong Chen
-- Jia Choi
+- Jia Choi (she/her) is a Junior in CD program at Parsons, interested in UiUx and interactive design. 
 - Noah S. Farjani
 - Hina Fernstrom
 - Olivia Hu
